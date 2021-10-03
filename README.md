@@ -1,2 +1,2 @@
 # private-achievements
-end-to-end contracted both paid/freelancing worked digital certificates.
+Achievements certificates plus end-to-end contracted freelancing worked digital certificates.
